@@ -6,3 +6,7 @@ For those who are camera-shy, we recommend posting at least one to bring
 your profile some attention.
 Showcase your best self—whether that means a fresh-from-the-groomer glamour
 shot or an action shot from your last game of fetch.
+
+Skills: Following scent trails, digging holes, treeing
+squirrels, looking after small children, guarding the pack,
+stealing chimkin when the little humans isn't looking
